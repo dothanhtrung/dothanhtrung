@@ -1,3 +1,1 @@
-Hi 🥳
-
-
+I used to be an adventurer like you. Then I took an arrow in the knee...
